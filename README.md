@@ -1,4 +1,4 @@
-### Hi there 👋
+### Halo semua 👋
 Nama: **Julio Febrian**
 
 Mahasiswa Jurusan **Teknik Industri**
